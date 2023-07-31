@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @n1cole-dev
 - 👀 I’m interested in coding, guitar, and running
 - 🌱 I’m currently learning coding and guitar
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me discord
+- 📫 My discord - n1kk1_3636
